@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Tanishi-Yadav
 - 👀 I’m interested in reading, gaming, drawing and writing
 - 🌱 I’m currently learning Visual Communication at UID NCR
-- 💞️ I’m looking to learn from the internships
+- 💞️ I’m looking to learn from internships
 - 📫 How to reach me tanishim1208@gmail.com
 - 😄 Pronouns: She/her He/him
 - ⚡ Fun fact: I'm a Virgo and an INFP - T
